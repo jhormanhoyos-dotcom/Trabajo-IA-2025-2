@@ -1,5 +1,5 @@
 # Trabajo-IA-2025-2
-Jhorman Camilo Hoyos Quintero, CC: 1193118684, Ingeniería Industrial
+Jhorman Camilo Hoyos Quintero, CC: 1193118684, Ingeniería Industrial, 29255147, jhormanhoyos
 
 Jimena Idarraga Rincón, CC: 1036252695, Ingeniería Industrial
 
