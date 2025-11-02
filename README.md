@@ -5,4 +5,4 @@ Jimena Idarraga Rincón; CC: 1036252695; Ingeniería Industrial
 
 María Fernanda colorado Muñoz; CC: 1038541391; Ingeniería Industrial; Usuario Kaggle: mariafercoloradomuoz, Número de cuenta: 29258298
 
-Video entrega 2: https://youtu.be/dYsTp4yXAOY
+Video entrega 2: https://youtu.be/Zbro7vLSlLI
